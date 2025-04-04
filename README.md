@@ -4,3 +4,5 @@ https://www.canva.com/design/DAGjVBIDq9o/FZq6krApiQ_0N0Xr5Svupw/view?utm_content
 
 Site Anexo
 https://convivial-teamwork.my.canva.site/
+
+Observação: Modifiquei a cor da logo de Roxa com fundo preto, para Branca com fundo Roxo, para tornar o cartão menos visualmente poluído.
